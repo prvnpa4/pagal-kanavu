@@ -8,4 +8,4 @@ Project TeMe (Project Tamil e-books for Modern e-readers)ன் நோக்க�
 மேலதிக தகவல்களுக்கும், இதில் தன்னார்வலாராக செயல்படவும் [இங்கே சொடுக்கவும்](https://twitter.com/ProjectTeme).
 
 
-Twitter DM: @ProjectTeMe
+**Twitter DM:** [@ProjectTeMe](https://twitter.com/messages/compose?recipient_id=1310248418741121025)
